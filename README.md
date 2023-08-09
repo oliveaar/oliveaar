@@ -1,7 +1,7 @@
 - 👋 yoyo im oliver but i got names like linn, bobo, oli, eshe and probably more but my memory is sleeping real bad :skull:
 
 - 👀 im interested in music, horror games, building (probably in roblox studio HELP), architecture, ocasionally reading but depends what.. and very interested in chinese culture!!
-- some fandoms im in, i couldnt put it on my main profile so ill do it here instead as i know that no one will ever read this but whatev since i got time during summer 
+- some fandoms im in, i couldnt put it all in my bio  so ill do it here instead as i know that no one will ever read this but whatev since i got time during summer 
   - **danmei**:
     - MDZS / Mo Dao Zu Shi (it was my first one, im so happy)
     - TGCF / Tian Guan Ci Fu
