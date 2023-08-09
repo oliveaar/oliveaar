@@ -23,7 +23,7 @@
 
 - 💞️ im looking for some real friends like, im dead serious this will sound funny 
      - rah let me explain
-     - #1. i met a lot of people and many times i felt like "omg this is the person!!!" and i was so amazed like omg. and then they turn out to have 100 other friends. damn let me be the one you wanna talk to HELP
+     - #1. i met a lot of people and many times i felt like "omg this is the person!!!" and i was so amazed like omg. and then they turn out to have 100 other friends and im last on the list. damn let me be the one you wanna talk to HELP
      - #2. we talk for like 3 days in a row max. then they dont talk at all, and i always have to text first :sob: i dont mind doing it but it makes me feel like i have to do all the job again again and again.... for nothing :skull:
      - #3. my personality isnt the issue........ :crying_cat_face: people js dont give me time and in 3 days i obv wont be babbling to u all my life problems and treating u like u my best friend or something
   - in conclusion: emo :smiling_imp:
