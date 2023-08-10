@@ -17,7 +17,7 @@
   - **i think thats it? i dont recall anything else**
 
 
-- 🌱 currently learning money managment LOL i know it sounds funny but i just cant handle my money, and at the same time everything seems so expensive yet im either rich or broke and cant deal with it
+- 🌱 currently learning money managment LOL i know it sounds funny but i just cant handle my money, and at the same time everything seems so expensive yet im either rich or broke and cant deal with it (well i dont do it all the time and its not a thing im learning seriously)
     - learning mandarin.. since almost 2 years. i fail miserably, sometimes i remember things sometimes not, i also started wrong with pinyin because i already could read it. now i have trouble with complicated characters which....... sucks :skull:
       - **if anyone is willing to help me with this mess *(without vc preferably) (for free) (im broke) (i have a phone to repair) (i have abandonent issues) (fatherless)* for free i could kiss u on pony town** :pleading_face:
 
