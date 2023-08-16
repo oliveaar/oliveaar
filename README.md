@@ -13,6 +13,7 @@
     - TWD / The Walking Dead
     - Sonic The Hedgehog / its not a movie but i didnt feel like making another thingy thing and calling it cartoons...
     - Taxi Driver
+    - American Psycho
     - Zom 100
   - **i think thats it? i dont recall anything else**
 
