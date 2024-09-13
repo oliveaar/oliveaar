@@ -1,38 +1,38 @@
-- 👋 yoyo im oliver but i got names like linn, bobo, oli, eshe and probably more but my memory is sleeping real bad (my old friends called me those) :skull:
+- 👋 yoyo im oliver but i got names like linn, bobo, oli, eshe and probably more but my memory is sleeping real bad (my old friends called me those) n i dont mind if you call me anything youd like!!
 
-- 👀 im interested in music, horror games, building (probably in roblox studio HELP), architecture, occasionally reading but depends what.. and very interested in chinese culture!!
-- some fandoms im in, i couldnt put it all in my bio  so ill do it here instead as i know that no one will ever read this but whatev since i got time during summer 
-  - **danmei**:
+- 👀 im interested in music (i used to play the cello), horror games, building (probably in roblox studio), architecture (was in building school!!), i love learning new things, and very interested in your country's culture *(so please tell me random facts)*!!
+
+- some fandoms im in, i couldnt put it all in my bio so ill do it here instead (i know that no one will ever read this but whatev since ive got lots of spare time) 
+  - **Fandoms**:
     - MDZS / Mo Dao Zu Shi (it was my first one, im so happy)
     - TGCF / Tian Guan Ci Fu
     - SVSSS / Ren Zha Fanpai Zijiu Xitong
     - 2HA / Erha He Ta De Bai Mao
-    - Word Of Honor / man i just put it, okay?
-    - TBLVDAR (?) / Taming the Black Lotus Villainous Disciple After Rebirth (it doesnt have a fandom BUT LISTEN the manhua is SO FIREEEEE im in love. i love duan wei. duan wei heart /j also about the name, im not sure how to call it, id say simply "black lotus villainous disciple" but i dont know.. HLEP)
-  - **serials / movies** (the movies literally dont have fandoms but its fine :rofl::
+    - YTTD / Kimi ga Shine
+    - Honkai Star Rail
+    - *I don't play Genshin anymore, but I guess I can tolerate it*
+    
+  - **Series / Movies** (the movies literally dont have fandoms but its fine :rofl:):
     - TWD / The Walking Dead
-    - Sonic The Hedgehog / its not a movie but i didnt feel like making another thingy thing and calling it cartoons...
+    - Sonic The Hedgehog (not the movies ver)
     - Taxi Driver
-    - American Psycho
-    - Zom 100
+    - Eternal Sunshine of the Spotless Mind
+    - American Psycho (yes. dont question it, ever)
   - **i think thats it? i dont recall anything else**
 
-
-- 🌱 currently learning money managment LOL i know it sounds funny but i just cant handle my money, and at the same time everything seems so expensive yet im either rich or broke and cant deal with it (well i dont do it all the time and its not a thing im learning seriously)
-    - learning mandarin.. since almost 2 years. i fail miserably, sometimes i remember things sometimes not, i also started wrong with pinyin because i already could read it. now i have trouble with complicated characters which....... sucks :skull:
-      - **if anyone is willing to help me with this mess *(without vc preferably) (for free) (im broke) (i have a phone to repair) (i have abandonent issues) (fatherless)* for free i could kiss u on pony town** :pleading_face:
-
-- 💞️ im looking for some real friends like, im dead serious this will sound funny 
-     - rah let me explain
-     - #1. i met a lot of people and many times i felt like "omg this is the person!!!" and i was so amazed like omg. and then they turn out to have 100 other friends and im last on the list. damn let me be the one you wanna talk to HELP
-     - #2. we talk for like 3 days in a row max. then they dont talk at all, and i always have to text first :sob: i dont mind doing it but it makes me feel like i have to do all the job again again and again.... for nothing :skull:
-     - #3. my personality isnt the issue........ :crying_cat_face: people js dont give me time and in 3 days i obv wont be babbling to u all my life problems and treating u like u my best friend or something
-  - in conclusion: emo :smiling_imp:
+- 💞️ **Dni**
+  - people without any common sense
+  - sh/ed (they usually make it their entire personality)
+  - racists, homophobes, etc.
+  - quirky gore people
+  - age: younger than 14, older than 20
 
 - 📫 discord is where all the shit happens but i use it everyday i love my profile it can be so silly sometimes so add me pls i hope its not a 3 day talk :pray: 
      - blehhhhpiamnotdoingthat
-- i dont use any other communication poopoos so sorry man but if u cool i will use anything for u :pleading_face:
+- i dont use any other communication poopoos except discord, twitter and instagram so sorry but if u cool i will use anything for u!
 
+
+***YOU WILL BE HELD ACCOUNTABLE FOR YOUR ACTIONS.***
 <!---
 oliveaar/oliveaar is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
