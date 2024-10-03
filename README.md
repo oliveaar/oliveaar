@@ -1,40 +1,12 @@
-- 👋 yoyo im oliver but i got names like linn, bobo, oli, eshe and probably more (my old friends called me those) n i dont mind if you call me anything youd like!!
+hi i go by many names mostly those created mindlessly i also accept your nicknames
+ive had a long readme but ive come to a conclusion i dont need it thats why its so short and dry now
 
-- 👀 im interested in music (i used to play the cello), horror games, building (preferably in roblox studio), architecture (was in building school!!), i love learning new things, and very interested in your country's culture as i consider every opportunity as an opportunity to learn something new *(so please tell me random facts)*!!
+im into yttd, dr (less now), danmei, hsr, class of 09
 
-- some fandoms im in, (i know that no one will ever read this but whatev since ive got lots of spare time) 
-  - **Fandoms**:
-    - MDZS / Mo Dao Zu Shi (i started danmei with this one hehe)
-    - TGCF / Tian Guan Ci Fu
-    - SVSSS / Ren Zha Fanpai Zijiu Xitong
-    - 2HA / Erha He Ta De Bai Mao
-    - YTTD / Kimi ga Shine
-    - Honkai Star Rail
-    - *I don't play Genshin anymore, but I guess I can tolerate it*
-    
-  - **Series / Movies** (the movies literally dont have fandoms but its fine :rofl:):
-    - TWD / The Walking Dead
-    - Sonic The Hedgehog (not the movies ver)
-    - Taxi Driver
-    - Eternal Sunshine of the Spotless Mind
-    - American Psycho (yes. dont question it, ever)
-    - Fight Club
-  - **i think thats it for now? i dont recall anything else**
+some other things about me i can play the cello, im in a technician school, building class (materials, architecture projects, programs) extending physics and math NOT ON THE AMERICAN LEVEL AND IT MAKES ME CRY, i do nice paintings irl?, i wanna learn anything related to cybersecurity/coding/game development in the future, unfortunately browse twitter but im on the nice side.........i dont wanna think of anything else rn
 
-- 💞️ **Dni**
-  - people without any common sense
-  - sh/ed (they usually make it their entire personality)
-  - racists, homophobes, etc. that's obvious
-  - quirky gore people
-  - age: younger than 14, older than 20
-
-- 📫 discord is where all the shit happens but i use it everyday i love my profile it can be so silly sometimes so add me pls i hope its not a 3 day talk :pray: 
-     - blehhhhpiamnotdoingthat
-- i dont use any other communication poopoos except discord, twitter and instagram so sorry but if u cool i will use anything for u!
-
-
-***YOU WILL BE HELD ACCOUNTABLE FOR YOUR ACTIONS.***
-<!---
-oliveaar/oliveaar is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
+dni
+shedtwt people
+below 14
+people who int because theyre bored
+special place for smelly G0REKICHI
